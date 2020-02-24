@@ -5,3 +5,5 @@ Updated in file system and pushing from here.
 Updated in file system and pushing from here.
 
 Times 3x
+
+Alexia's notes
